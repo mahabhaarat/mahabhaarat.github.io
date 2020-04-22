@@ -1,1 +1,1 @@
-# mahabhaarat.github.io
+# mythology-wq
